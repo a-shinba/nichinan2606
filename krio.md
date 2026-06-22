@@ -1,2 +1,2 @@
 # 好きなアーティスト
--SixTONES
+-SixTONES!!
